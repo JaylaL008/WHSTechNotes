@@ -34,3 +34,15 @@ This is a free week.
  1.Recently, many cites have been dealing with an increase in cyber attacks on their public infrastructure, which has impacted utilities, transportation, and healthcare systems. These cyberattacks often involve ransomware.
  2. Advancements in AI and machine learning could help detect unusual activity within networks faster, enabling quicker responses.
  
+# November 18, 2024
+technology has revolutionized the food industry, significantly impacting how we grow, distribute, and purchase food. Innovations such as precision agriculture, automated farming equipment, and advanced supply chain management have steamlined food production and distribution making it more efficient.
+
+# December 2, 2024
+
+# December 9, 2024
+To me, brainrot means children or teens watching corny things online and using it too often  in real life.
+No.
+Yes. To limit your use of technology.
+
+# December 16, 2024
+YES ABSOLUTELY. MY BIRTHDAY IS THE 22ND!!!
