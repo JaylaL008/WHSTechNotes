@@ -42,7 +42,41 @@ technology has revolutionized the food industry, significantly impacting how we 
 # December 9, 2024
 To me, brainrot means children or teens watching corny things online and using it too often  in real life.
 No.
-Yes. To limit your use of technology.
+Yes. To limit your use of technology.5
+
 
 # December 16, 2024
 YES ABSOLUTELY. MY BIRTHDAY IS THE 22ND!!!
+
+# December 17, 2024
+Free day
+
+# December 18, 2024
+Exam
+
+# January 8, 2025
+1. I liked the free time. Nothing improved
+2. More about blender
+3. Yes, I currently take a college class for Python
+
+# January 9, 2025
+Minecraft Voyage
+
+# January 10, 2025
+Creating sports game
+
+# January 13, 2025
+The shift in the tech industry towards prioritizing AI skills over traditional tech roles represents a transformation in the job market. While some may argue that this transition could limit opportunities for workers who specialize in conventional tech roles, I believe that AI tools will enhance opportunities by creating new roles and demands for skills thats good for AI technologies. To prepare for a career in this rapidly changing environment, it is needed to embrace continuous learning. This could involve pursuing courses in AI and machine learning, gaining hands-on experience with AI tools, and developing a mindset that is open to change. By equipping myself with relevant skills and knowledge, I can position myself favorably in a job market that increasingly values innovation and technological proficiency.
+
+# January 14, 2025
+Desert Drones
+
+# January 15, 2025
+Moneyball questions
+
+# January 22, 2025
+      I think that its not fair to remove tiktok and think its gonna make a huge difference in society. Tiktok could make their policies a little more strict, but nothing really serious happens. If I were to work at Tiktok, I would want to remove the location. I dont know if they let you allow your location on tiktok or no, but whenever I travel, I get tiktoks about things to do in my area.
+      The whole thing about removing tiktok is stupid. It isnt going to solve real life issues. We have rape, assault, racism, protesters, and more and more school shootings, and they decide to ban tiktok instead of doing something important. I strongly dislike the government.
+
+# January 23, 2025
+Disney infinity lab
