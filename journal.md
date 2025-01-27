@@ -81,5 +81,13 @@ Moneyball questions
 # January 23, 2025
 Disney infinity lab
 
-# january 24, 2025
+# January 24, 2025
 Coding pathway form
+
+# January 27, 2025
+|   Name   |       Car       |         Mistake          |
+|----------|-----------------|--------------------------|
+| Bart     | Toyota Corolla  | Drilled hole in gas tank | 
+| Harrison | Subaru Forester | Left stains in carpet    |
+| Jimmy    | GMC Sierra      | Fixed wrong problem      |
+| Kayla    | Honda Civic     | Left the oil cap off     |
