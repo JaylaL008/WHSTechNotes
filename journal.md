@@ -87,7 +87,7 @@ Coding pathway form
 # January 27, 2025
 |   Name   |       Car       |         Mistake          |
 |----------|-----------------|--------------------------|
-| Bart     | Toyota Corolla  | Drilled hole in gas tank | 
-| Harrison | Subaru Forester | Left stains in carpet    |
-| Jimmy    | GMC Sierra      | Fixed wrong problem      |
-| Kayla    | Honda Civic     | Left the oil cap off     |
+| Jimmy    |   Honda Civic   | Drilled hole in gas tank | 
+| Kayla    |    GMC Sierra   |   Fixed wrong problem    |
+| Bart     | Toyota Corolla  |  Left stains on carpet   |
+| Harrison | Subaru Forester |  Left the oil cap off    |
