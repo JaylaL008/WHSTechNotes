@@ -102,3 +102,5 @@ Coaches and analysts use AI-driven data analysis to assess player performance, p
 
 Super Bowl commercials are legendary, with brands competing to create the most memorable and impactful ads. AI is now being used to analyze consumer behavior and generate personalized ad experiences. From predictive analytics to AI-generated video content, brands are using AI to maximize ad effectiveness and reach the right audiences. AI-driven marketing tools can help brands personalize content, optimize ad placement, and refine messaging to engage target audiences more effectively. AI can analyze data from previous campaigns to predict what content will resonate most with viewers. However, Im not entirely sure what I would use if I was working in this field.
 
+# February 18, 2025
+The most interesting thing I have learned last week was that Dolphins get high when they play around/Bully pufferfish. The fish releases toxins that make the Bottlenose Dolphins "high".
