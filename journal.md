@@ -119,3 +119,8 @@ The most interesting thing I have learned last week was that Dolphins get high w
 | Silver | Mind Control         | Retrieve Stolen Goods |
 |Tangier | Shapeshifting        | Extract Prisoner      |
 
+# March 17, 2025
+1. The most tech I used during the break was my phone and TV
+2. My phone entertained me by playing Block Blast, watching shows, and helping me with the map
+3. I possibly can
+
