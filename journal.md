@@ -124,3 +124,6 @@ The most interesting thing I have learned last week was that Dolphins get high w
 2. My phone entertained me by playing Block Blast, watching shows, and helping me with the map
 3. I possibly can
 
+# March 18, 2025
+Today I did the Flappy Code game.
+
