@@ -131,3 +131,10 @@ Today I did the Flappy Code game.
 The integration of AI-driven predictions in March Madness presents a double-edged sword. While the allure of a "perfect bracket" and the insights provided by AI can initially pique interest, they ultimately diminish the unpredictability that defines the tournament's charm. The essence of March Madness lies in the Cinderella stories, the unexpected upsets, and the nail-biting finishes that defy logical forecasting. Over-reliance on AI predictions risks turning the tournament into a predictable, data-driven exercise, stripping away the emotional investment and excitement that come from witnessing the unexpected.
 
 Social media platforms and streaming services have transformed fan engagement during March Madness. The ability to instantly share reactions, highlights, and analyses has created a sense of community among viewers, transcending geographical boundaries. However, this can also detract from the traditional viewing experience. The constant influx of notifications and the temptation to engage with online discussions can divert attention from the game itself, diminishing the focus and appreciation for the live action unfolding on the court.
+
+# March 31, 2025
+1. Mentally: stressed Emotionally: Good Physically: sick
+2. Studying for Geometry
+3. Sleep, cook, watch movies
+4. Get a good GPA
+5. My friends. I trust them a lot
