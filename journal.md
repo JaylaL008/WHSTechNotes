@@ -138,3 +138,8 @@ Social media platforms and streaming services have transformed fan engagement du
 3. Sleep, cook, watch movies
 4. Get a good GPA
 5. My friends. I trust them a lot
+
+# April 7
+  I think AI can really help me stay organized and focused when studying for big tests like the STAAR. For example, ChatGPT can help me understand confusing topics and explain them in an easier way  that makes sense to me. Instead of spending hours stuck on one question, I can ask AI to help me understand it faster. I also like how AI can give me practice questions so I can see what I need to work on.
+  I sometimes struggle with staying focused, so an AI that could keep me on track would be very helpful. it makes studying so much easier especially last minute. When using AI to help me study, I could feel more confident going into the STAAR test.
+
