@@ -139,7 +139,10 @@ Social media platforms and streaming services have transformed fan engagement du
 4. Get a good GPA
 5. My friends. I trust them a lot
 
-# April 7
+# April 7, 2025
   I think AI can really help me stay organized and focused when studying for big tests like the STAAR. For example, ChatGPT can help me understand confusing topics and explain them in an easier way  that makes sense to me. Instead of spending hours stuck on one question, I can ask AI to help me understand it faster. I also like how AI can give me practice questions so I can see what I need to work on.
   I sometimes struggle with staying focused, so an AI that could keep me on track would be very helpful. it makes studying so much easier especially last minute. When using AI to help me study, I could feel more confident going into the STAAR test.
 
+# April 14, 2025
+  I believe there are pros and cons to removing phones from school. I believe kids do get distracted by their phones in class, but if a kid refuses to learn because of that then the phone can get taken. Not all kids are distracted by them. Most of the time, kids need their phones for emergencies.
+  Kids need there phones, for example, a lockdown. They can call their parents to pick them up if the situation gets handled. If kids get dress coded, they can call their parents for a spare. Or if a parent calls them due to an emergency.
