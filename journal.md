@@ -146,3 +146,10 @@ Social media platforms and streaming services have transformed fan engagement du
 # April 14, 2025
   I believe there are pros and cons to removing phones from school. I believe kids do get distracted by their phones in class, but if a kid refuses to learn because of that then the phone can get taken. Not all kids are distracted by them. Most of the time, kids need their phones for emergencies.
   Kids need there phones, for example, a lockdown. They can call their parents to pick them up if the situation gets handled. If kids get dress coded, they can call their parents for a spare. Or if a parent calls them due to an emergency.
+
+# April 28, 2025
+| Name    | flavor    | occasion       | Price  |
+|---------|-----------|----------------|--------|
+| Sally   | Chocolate | Graduation     | $35.00 |
+| Michael | Vanilla   | Farewell party | $37.00 |
+| Emma    | Carrot    | Birthday       | $39.00 |
