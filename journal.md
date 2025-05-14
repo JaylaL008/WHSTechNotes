@@ -153,3 +153,13 @@ Social media platforms and streaming services have transformed fan engagement du
 | Sally   | Chocolate | Graduation     | $35.00 |
 | Michael | Vanilla   | Farewell party | $37.00 |
 | Emma    | Carrot    | Birthday       | $39.00 |
+
+# May 5, 2025
+Yes, 100 people could defeat 1 gorilla under the right conditions.
+A full-grown silverback gorilla weighs around 300–400 pounds and has about 4–9 times the strength of an average human.  Large groups of people have successfully hunted or captured animals much larger than gorillas, like lions or elephants, throughout history using tools and tactics. Even unarmed, 100 people working together could surround, distract, and wear down a single animal.
+Although a gorilla is incredibly strong and could easily injure or kill a few people in a fight, 100 people have the advantage of numbers. If the group acts by strategy and by rushing in waves, restraining the gorilla, and using teamwork, they could win. The key is coordination, not individual strength. So, while many people might die in the process, the group as a whole has a very high chance of winning
+
+# May 12, 2025
+The “Chromebook Challenge” is not ethical because it puts people and property at serious risk for the sake of a joke or trend.
+Inserting objects like pencils into USB ports can destroy devices or even cause fires, which is extremely dangerous. As digital citizens, we have a responsibility to use technology safely and respectfully. Just because something is trending online doesn’t make it okay to follow—especially if it damages school property or risks someone getting hurt. If someone said “it’s just a joke,” I’d explain that jokes that harm others or waste money aren’t funny. Schools have limited resources, and broken Chromebooks can affect learning. Being responsible with tech shows maturity and helps keep everyone safe.
+
