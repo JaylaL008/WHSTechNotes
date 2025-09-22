@@ -3,3 +3,12 @@ I dislike the new phone law. I dont mind not using my phone in class, but not be
 
 # September 8, 2025
 When I get older, I want to be an entreprenuer and create a baking business. Computer science could help keep track of the ingredients like when we run out. I could use it to create a program to track the inventory to predict when the supplies run low. In my life, I used computer science to create a program and website with the help of my mom so that people could order cookies. It was hard but extremely helpful.
+
+# September 9, 2025
+Complete journal 8
+
+# September 15, 2025
+My idea for an AI project would be an app that uses Ai to help students study like ChatGBT or IXL. The project would be able to function properly because it would use Ai correctly to support students or workers and their education. It can help students with their homework or classwork. It can help WOrkers wih ideas for a business project. I believe this idea would be helpful because it gives people chances to learn more at their own pace. Building confidence in their work and gaining more help for difficult subjects.
+
+# September 22, 2025
+In my opinion, I think its great that IKEA created a job in roblox that pays you. Kids love to play games like Roblox, and some (including me) struggle to find jobs in real life. Creating a job in Roblox where the child can have fun and get paid at the same time would be easy money for them. One con to it would be that they probably wont have enough time to go outside. Even though I support the idea, I believe its better to have a job that has you walk around and move things physically so that youre working more muscles than your fingers.
