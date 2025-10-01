@@ -12,3 +12,6 @@ My idea for an AI project would be an app that uses Ai to help students study li
 
 # September 22, 2025
 In my opinion, I think its great that IKEA created a job in roblox that pays you. Kids love to play games like Roblox, and some (including me) struggle to find jobs in real life. Creating a job in Roblox where the child can have fun and get paid at the same time would be easy money for them. One con to it would be that they probably wont have enough time to go outside. Even though I support the idea, I believe its better to have a job that has you walk around and move things physically so that youre working more muscles than your fingers.
+
+# September 30, 2025
+The so-called 6,7 trend started with a song that says 67 in a basketball edit. It came up out of nowhere and people would say it at random like a vocal stim. It's kind of annoying. People would say it when they see or hear people say ," 6-7 business days." That or when someone asks the time and the other responds with," six minutes to seven."
