@@ -15,3 +15,6 @@ In my opinion, I think its great that IKEA created a job in roblox that pays you
 
 # September 30, 2025
 The so-called 6,7 trend started with a song that says 67 in a basketball edit. It came up out of nowhere and people would say it at random like a vocal stim. It's kind of annoying. People would say it when they see or hear people say ," 6-7 business days." That or when someone asks the time and the other responds with," six minutes to seven."
+
+# October 6, 2025
+If I was in change of the school, my technology policy would be that kids can use their phones in class and breaks, but if the teacher is in a lecture they must put it away. Kids can use AI on occasions, and they can play online games. For example, I dont know why our school banned Cool Math Games. Im not sure if they did it just because or if kids were using it too much, but it was never an issue or offensive. Kids should be able to use other games like Prodegy too.
