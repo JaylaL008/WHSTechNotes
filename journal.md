@@ -18,3 +18,7 @@ The so-called 6,7 trend started with a song that says 67 in a basketball edit. I
 
 # October 6, 2025
 If I was in change of the school, my technology policy would be that kids can use their phones in class and breaks, but if the teacher is in a lecture they must put it away. Kids can use AI on occasions, and they can play online games. For example, I dont know why our school banned Cool Math Games. Im not sure if they did it just because or if kids were using it too much, but it was never an issue or offensive. Kids should be able to use other games like Prodegy too.
+
+# October 14, 2025
+https://www.canva.com/ai/code/thread/cff6393f-9c3a-49fb-8314-353b7ba5c2e0
+My prompt is describing the American Revolution. Canva created an interactive timeline to learn more about the American Revolution. Although I do think It could be more colorful. The parts that worked the best was the Show less/more tab. To improve the prompt next time, I would make it more colorful and maybe with pictures this time.
