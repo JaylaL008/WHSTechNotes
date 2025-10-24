@@ -22,3 +22,9 @@ If I was in change of the school, my technology policy would be that kids can us
 # October 14, 2025
 https://www.canva.com/ai/code/thread/cff6393f-9c3a-49fb-8314-353b7ba5c2e0
 My prompt is describing the American Revolution. Canva created an interactive timeline to learn more about the American Revolution. Although I do think It could be more colorful. The parts that worked the best was the Show less/more tab. To improve the prompt next time, I would make it more colorful and maybe with pictures this time.
+
+# October 20, 2025
+| Franklin | second | 91A |
+|----------|--------|-----|
+| Hardeep  | third  | 61F |
+| Marla    | first  | 35B |
