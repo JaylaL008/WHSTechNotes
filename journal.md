@@ -28,3 +28,9 @@ My prompt is describing the American Revolution. Canva created an interactive ti
 |----------|--------|-----|
 | Hardeep  | third  | 61F |
 | Marla    | first  | 35B |
+
+# October 27, 2025
+| Fiona  |    Gado Gado    |    Creme Brulee    |
+|--------|-----------------|--------------------|
+| Tobias | Shrimp Ceviche  | French Apple cake  |
+| Leanne | Beef Wellington | Raspberry Tiramisu |
