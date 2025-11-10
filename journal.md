@@ -37,3 +37,6 @@ My prompt is describing the American Revolution. Canva created an interactive ti
 
 # November 3, 2025
 The reason why it's a big deal is because millions of Americans use SNAP. If it was taken, a lot of families would struggle to get food. I feel like apps and websites would help show them different food banks would be using advertisements. If people didnt have phones or electronics, it would be harder for them to find food banks. Unless food banks would be posted on news paper ads. If I created a tool to help solve food insecurity, it would be called the food indicator. It would be a robot that goes to houses struggling to find food and give them ads and locations for local food banks.
+
+# November 10, 2025
+During the holidays, technology helped families connect like with using facetime and texting when and where to meet. I personally think it makes things way easier. Yes, to make it easier for people to order for the holidays. Things like christmas presents.
