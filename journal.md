@@ -41,5 +41,8 @@ The reason why it's a big deal is because millions of Americans use SNAP. If it 
 # November 10, 2025
 During the holidays, technology helped families connect like with using facetime and texting when and where to meet. I personally think it makes things way easier. Yes, to make it easier for people to order for the holidays. Things like christmas presents.
 
-# November 10, 2025
+# November 17, 2025
 I am very excited for Thanksgiving break. I am going on a college trip to Houston this Saturday and the food on thanksgiving is going to be amazing.
+
+# December 1, 2025
+A real job that uses drones is a photographer or people that record concerts. Coding helps drones record concerts by using flight path programming, synchronization with other show elements, real-time control and monitoring. In texas, you can earn $40,000-$75,000 annualy. For this job, you need a drone license. I would not want to do this job even though it sounds fun because I dont want to go to multiple concerts and I feel like it's not enough money.
