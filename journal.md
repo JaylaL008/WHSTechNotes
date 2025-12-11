@@ -46,3 +46,6 @@ I am very excited for Thanksgiving break. I am going on a college trip to Housto
 
 # December 1, 2025
 A real job that uses drones is a photographer or people that record concerts. Coding helps drones record concerts by using flight path programming, synchronization with other show elements, real-time control and monitoring. In texas, you can earn $40,000-$75,000 annualy. For this job, you need a drone license. I would not want to do this job even though it sounds fun because I dont want to go to multiple concerts and I feel like it's not enough money.
+
+# December 8, 2025
+I believe that a lot of self driving cars can only sense the road ways and not lights like they should. The car would need to be reprogrammed so it can sense red lights and signs. Unlike the Tesla, I believe Waymo cars cannot sense it. If I worked with the team, I would program it to sense stop signs, lights, and objects in the road. The details on the sensors need to be increased so they just might have to take it apart. Not the whole thing of course.
