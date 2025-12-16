@@ -49,3 +49,6 @@ A real job that uses drones is a photographer or people that record concerts. Co
 
 # December 8, 2025
 I believe that a lot of self driving cars can only sense the road ways and not lights like they should. The car would need to be reprogrammed so it can sense red lights and signs. Unlike the Tesla, I believe Waymo cars cannot sense it. If I worked with the team, I would program it to sense stop signs, lights, and objects in the road. The details on the sensors need to be increased so they just might have to take it apart. Not the whole thing of course.
+
+# December 15, 2025
+I am going shopping, celebrating my birthday, and Christmas.
