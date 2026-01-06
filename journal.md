@@ -52,3 +52,6 @@ I believe that a lot of self driving cars can only sense the road ways and not l
 
 # December 15, 2025
 I am going shopping, celebrating my birthday, and Christmas.
+
+# January 6, 2026
+During the break, I got a new iPhone 17 and a new iPad A16. The iPad is pink and I downloaded a lot of new games on it. I downloaded Procreate so I can make drawings using the Apple pencil I also got. I used all of them and I would stay up at night drawing on it.
