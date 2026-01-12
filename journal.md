@@ -55,3 +55,6 @@ I am going shopping, celebrating my birthday, and Christmas.
 
 # January 6, 2026
 During the break, I got a new iPhone 17 and a new iPad A16. The iPad is pink and I downloaded a lot of new games on it. I downloaded Procreate so I can make drawings using the Apple pencil I also got. I used all of them and I would stay up at night drawing on it.
+
+# January 12, 2026
+Autcraft was created to be a welcoming and comfortable space for autistic children. It was made so that they wouldnt have to experience the harsh environment of the gaming community. The game is solving the issues people have with cyberbullies. Sadly this game is needed due to the stereotype of special needs kids and the constant bullying they endure. Thankfully, they can feel safe and happy in Autcraft.
