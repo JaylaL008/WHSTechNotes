@@ -61,3 +61,10 @@ Autcraft was created to be a welcoming and comfortable space for autistic childr
 
 # January 29, 2026
 I didnt test at all.
+
+# Feburary 2, 2026
+Personal hygiene and self-care is important in a social environment because if you stink or look bad, people will think you dont take care of yourself or you wont look professional.
+Loud conversations, strong smells, or distracting behavior can affect others’ ability to focus because all of those are distracting to others and will make it hard to focus on their work if it keeps disrupting their brain.
+Reasonable expectations for professional behavior in shared spaces would be clean, mature, and collected
+Self regulation is important because it will show yourself and others that you are mature and serious enough to be in that area
+I would say using earbuds to listen to music would help me focus a lot more.
