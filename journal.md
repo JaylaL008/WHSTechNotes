@@ -68,3 +68,33 @@ Loud conversations, strong smells, or distracting behavior can affect others’ 
 Reasonable expectations for professional behavior in shared spaces would be clean, mature, and collected
 Self regulation is important because it will show yourself and others that you are mature and serious enough to be in that area
 I would say using earbuds to listen to music would help me focus a lot more.
+
+# Feburary 10, 2026
+I do like football but I dont watch nor understand it.
+I only watched the halftime show
+I think it was very entertaining
+
+# Feburary 23, 2026
+I think the tech that had a big impact was the drone cinematography. It captureed many good videos and pictures. Drone cinematography was used to broadcast skiing events. They were providing a "video game-like" perspective that traditional cameras could not achieve. The drones during the 2026 Winter Olympics improved skiing by making it easier to see for home viewers.
+
+# March 2, 2026
+Job #1
+Company: Cambio Consulting Group
+Job Title: Software engineer
+Education Required: Bachelors
+Experience Required: 8+ years
+Skills / Tools / Languages: English
+Certifications (if any): Oracle APEX dev
+What the job does (1–2 sentences): They help find solutions that help government leaders with issues including policy review.
+
+Job #2
+Company: DataAnnotation
+Job Title: Data analysist
+Education Required: Bachelors
+Experience Required: N/A
+Skills / Tools / Languages: English, JavaScript, TypeScript, Python. Writing and grammar skills
+Certifications (if any): N/A
+What the job does (1–2 sentences): Works with AI models, advances AI
+
+# March 23, 2026
+One upset would be that Iowa defeated Florida. It was expected that a No.1 seed is expected to go far in the tournament and florida was the champion, but Iowa shocked everyone with a three pointer and won. I think it's hard for computers to predict pressure/ injuries. Predictions can still be wrong because its a guess. the computer would struggle to account for the unpredictihble factors of the game. To fix it, I would need to use advanced stats and not basic ones.
