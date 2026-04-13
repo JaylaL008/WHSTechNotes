@@ -98,3 +98,10 @@ What the job does (1–2 sentences): Works with AI models, advances AI
 
 # March 23, 2026
 One upset would be that Iowa defeated Florida. It was expected that a No.1 seed is expected to go far in the tournament and florida was the champion, but Iowa shocked everyone with a three pointer and won. I think it's hard for computers to predict pressure/ injuries. Predictions can still be wrong because its a guess. the computer would struggle to account for the unpredictihble factors of the game. To fix it, I would need to use advanced stats and not basic ones.
+
+# April 9, 2026
+The AI has had no biological data. Humans can say that the new model of "Human recklessness" is based on 50 year old history. To complete the mission, it needs live data to calibrate its systems. The humans can argue that existing isnt surviving.
+
+Advanced AI would understand that the systems without new input would tend toward entropy. The humans can say that their recklessness is a source of procedural generation. If they kept the humans contained, it the AI would've created a closed ecosystem. Thats a way to introduce the necessary randomness to keep the plant ecosystem from messing up.
+# April 13, 2026
+The Artemis mission used upgraded space shuttle era tech. The rocket's large fuel tanks are built using advanced friction stir welding. The faced several tech issues. It would range from heat shield erosion to system leaks. Its important for them to fix these issues because they affect the crew directly and will prevent them from having any further issues.
