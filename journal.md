@@ -105,3 +105,9 @@ The AI has had no biological data. Humans can say that the new model of "Human r
 Advanced AI would understand that the systems without new input would tend toward entropy. The humans can say that their recklessness is a source of procedural generation. If they kept the humans contained, it the AI would've created a closed ecosystem. Thats a way to introduce the necessary randomness to keep the plant ecosystem from messing up.
 # April 13, 2026
 The Artemis mission used upgraded space shuttle era tech. The rocket's large fuel tanks are built using advanced friction stir welding. The faced several tech issues. It would range from heat shield erosion to system leaks. Its important for them to fix these issues because they affect the crew directly and will prevent them from having any further issues.
+
+# April 20, 2026
+I think that AI shouldnt be used for art, music, and social media. It can mess with people's trust and their minds. Sometimes when I look at tiktok videos, I cant tell if the person is AI. This is off topic, but AI has become so dangerous that human trafficers now use AI to lure people outside to kidnap them. This mother got a call from her daughter, and her daughter was telling her to open the door cus her friend brought her home. The mom checked the ring camera and she wasnt there. The AI sounded just like her daughter and apparently looked like her too. The mom called the school and they said she never called. AI is becoming very dangerous and people are taking advantage of it.
+
+# April 27, 2026
+This week, I paid a lot of attention to braiding my hair. It was hard for me to part the back of my head, So I used my iPad and my TV to see. I screen mirrored me iPad to my TV and propped it up behind my head and saw the POV on my TV. If I didnt have technology like that, It wouldve been way harder to braid it. Unless I got it done.
