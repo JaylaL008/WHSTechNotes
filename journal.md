@@ -114,3 +114,6 @@ This week, I paid a lot of attention to braiding my hair. It was hard for me to 
 
 # May 6, 2026
 I use Tiktok, Instagram, and ChatGPT on a daily basis. There are a lot of things you can do to improve AI. For example, not blindly trusting info you see on tiktok without doing your own research. Many people use that to spread misinformation. People should use it as a learning tool to help with your creativity and your everyday life.
+
+# May 11, 2026
+Throughtout this whole school year, I believe I improved the most in responsibility. Sophomore year, I used to be very irresponsible. I would pick and choose when I want to do work and when I didnt, and that messed with my grade a lot. This year, I became more serious about my grades and attendance because I want to go to college. I make the right decisions by sleeping on time, finishing work on time, and making sure I do it right.
