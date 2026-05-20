@@ -117,3 +117,6 @@ I use Tiktok, Instagram, and ChatGPT on a daily basis. There are a lot of things
 
 # May 11, 2026
 Throughtout this whole school year, I believe I improved the most in responsibility. Sophomore year, I used to be very irresponsible. I would pick and choose when I want to do work and when I didnt, and that messed with my grade a lot. This year, I became more serious about my grades and attendance because I want to go to college. I make the right decisions by sleeping on time, finishing work on time, and making sure I do it right.
+
+# May 18, 2026
+If my best friend, Gabby, went missing, I would say that she's a brown skin, 5'5 girl that dresses comfortably. Usually a polo shirt and shorts or a hoodie. She's usually goofy and unserious. She always says things like "yolo" or "Brotatochip." I believe she would be found back in Louisiana at her ex's house. One detail about her would be the way she talks. She has a somewhat strong accent.
